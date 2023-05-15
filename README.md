@@ -1,0 +1,1 @@
+The purpose of this website is to offer healthier alternatives to traditional recipes.
